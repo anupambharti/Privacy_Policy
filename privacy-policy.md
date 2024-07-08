@@ -1,4 +1,3 @@
-
 # Privacy Policy for MindMotion: Craft Your Success
 
 **Effective Date:** [7/5/2024]
